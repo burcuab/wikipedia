@@ -1,7 +1,7 @@
 ## Views of Turkey Worker Party and its deputies in Vikipedia (TR)
 
 * We see the sharp increase for Baris Atay in January just after he joined a discussion in Babala Youtube channel.
-* Baris Atay is Hatay deputy which is drastically damaged by Earthequake on Feb 6th. He makes public speeches and we see the increase in the first week of the disaster again.
+* Baris Atay is Hatay deputy. Hatay is one of the cities drastically damaged by Earthequake on Feb 6th. He makes public speeches and we see the increase in the first week of the disaster again.
 * And lastly Erkan Bas is frequently in popular Youtube channels like "Az Once Konustum" in March and he also annouced TIP's support for Kemal Kilicdaroglu (leader of main opposition party in Turkey) for next president elections.
 
 Source table: Wikipedia public data source 
